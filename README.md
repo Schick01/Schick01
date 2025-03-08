@@ -4,4 +4,4 @@
 
 ⚽ In the future, I would like to apply my skills to sports data analysis to extract valuable insights and develop innovative applications.
 
-🚀 Always eager to learn new technologies and enhance my skills in software development and data modeling.
+🚀 Always curious to learn new technologies and improve my skills in software development and data analysis.
